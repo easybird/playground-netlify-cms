@@ -10,9 +10,10 @@ At 6h30 in the morning, after hours of contractions already at home, we arrived 
 
 By the way, mom did a GREAT job during labour! She managed to gave birth without any form of medication and gave birth in a bath tub, just as she wanted.. That great woman will be a wonderful mother!
 
-[Feeling good](https://www.google.be/url?sa=t&rct=j&q=&esrc=s&source=web&cd=1&cad=rja&uact=8&ved=0ahUKEwiYwOH9if3UAhWMmLQKHWG4BpcQyCkIKDAA&url=https%253A%252F%252Fwww.youtube.com%252Fwatch%253Fv%253DD5Y11hwjMNs&usg=AFQjCNFhAgKpHcx9Cr8Q-el6rDOiUFIcvw)!
+[Feeling good](https://www.youtube.com/watch?v=D5Y11hwjMNs)!
 
 Jonathan aka Daddy
+
 
 
 
